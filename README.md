@@ -1,1 +1,1 @@
-# DinoGalaus
+# DinoGalaus.github.io
